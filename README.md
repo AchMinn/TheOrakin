@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @TheOrakin
+- 👀 I’m interested in learning programmation for studies and hobby stuff
+- 🌱 I’m currently learning Computer science in 2nd year of college
+- 💞️ I’m looking to collaborate on nothing actually, i'm just here for the never ending fun of learning new stuff
+- 📫 Reach me on my email "elminor2002@gmail.com"
