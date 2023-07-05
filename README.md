@@ -1,3 +1,1 @@
-- 👀 I’m interested in learning programmation for studies and hobby stuff
-- 🌱 I’m currently learning Computer science in 2nd year of college
-- 💞️ I’m looking to collaborate on nothing actually, i'm just here for the never ending fun of learning new stuf
+Avid manga reader, and a computer enjoyer
